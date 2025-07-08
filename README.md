@@ -18,4 +18,4 @@
 
 BT下载平台：对于有一定下载经验的用户，可以通过BT分享站点（如Sukebei）来获取完整的日本AV影片。需要注意的是，尽量选择有良好信誉的站点，避免非法和有风险的内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/july4562/55666 ）</span>
